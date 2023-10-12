@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Bhavishaaaa
 - 👀 I’m interested in Talent Acquisition
-- 💞️ I’m working for startups and currently head hunting for Tech eEnthusiasts.
+- 💞️ I’m working for startups and currently head hunting for Tech Enthusiasts.
 - 📫 bhavisha@baskhr.com
 
 <!---
